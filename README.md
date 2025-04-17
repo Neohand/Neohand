@@ -1,5 +1,5 @@
 ## Hey there 👋
-
+I plan on updating this profile after uni. See you around 2029!
 <!--
 **Neohand/Neohand** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
